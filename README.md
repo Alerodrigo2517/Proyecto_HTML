@@ -1,0 +1,2 @@
+Tablero scrum
+https://trello.com/invite/b/68a8c9f8cfdec2fe62126779/ATTI3f433f8cb96473a46fc25b184598b1ecEA719D0E/proyecyo
